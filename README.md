@@ -1,2 +1,2 @@
-# Dispose-It-
+# GG of Legends
 Demo version
